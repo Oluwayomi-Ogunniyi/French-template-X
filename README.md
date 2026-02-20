@@ -1,0 +1,1 @@
+# French-template-X
